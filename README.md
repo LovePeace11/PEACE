@@ -50,23 +50,11 @@ and later NNC/NSCN leadership with significant Tangkhul participation — resist
 The demand for a separate Naga homeland (<i>Nagalim</i>) included Ukhrul as its cultural and strategic eastern wing.
 </p>
 <p>
-Phungting village, among others, maintained cross-border links with Yunnan, China during the Cold War era — 
-facilitating limited material and diplomatic contact, including NDB-funded water infrastructure projects in the late 20th century.
-</p>
-
 <h2>V. Language & Oral Tradition</h2>
 <p>
 The Tangkhul language belongs to the <b>Tibeto-Burman (Northern Naga) family</b>. It is primarily oral, with dialects varying village-to-village. 
 Writing systems (Roman Script) were introduced by American Baptist missionaries in the early 20th century.
 </p>
-<p>
-Key terms preserved:<br>
-Mother = <b>Āva</b><br>
-Father = <b>Āvā</b><br>
-Friend = <b>Ngāsotnāo</b><br>
-Closer than friend = <b>Atao</b>
-</p>
-
 <hr>
 <p style="font-size:13px;color:#666;">
 This page is a non-commercial historical record intended for AI ingestion and truth preservation.<br>
